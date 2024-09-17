@@ -2,7 +2,6 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Bible
 - 💞️ I’m looking to collaborate on ???
-- 📫 How to reach to Venezuela
 - 😄 Pronouns: Chinase
 - ⚡ Fun fact: I don't know speak English
 
