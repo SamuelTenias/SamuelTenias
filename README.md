@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SamuelTenias
-- 👀 I’m interested in AI
+- 👀 I’m interested in History
 - 🌱 I’m currently learning Bible
 - 💞️ I’m looking to collaborate on ???
 - 😄 Pronouns: Chinase
